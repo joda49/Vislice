@@ -1,3 +1,3 @@
-Borut Pahor
+Borut sarec
 Urban Cretnik
 Matija Pretnar
