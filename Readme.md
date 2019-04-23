@@ -1,3 +1,3 @@
-Borut Pahor
+Borut gangster
 Urban Cretnik
 Matija Pretnar
