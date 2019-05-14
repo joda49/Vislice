@@ -1,3 +1,1 @@
-Borut sarec pahor
-Urban Cretnik
-Matija Pretnar
+Repozitorij za igro vislice
